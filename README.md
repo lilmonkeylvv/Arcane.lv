@@ -1,12 +1,12 @@
 Arcane.lv Officiālais GitHub
 
-Discord https://discord.gg/arcanelv
+Discord: https://discord.gg/arcanelv
 
 īpašnieks: qju#0666
 
 
-http://arcane.lv/
+Webiste: http://arcane.lv/
 
-https://www.instagram.com/arcanelvgaming/
+FaceBook: https://www.instagram.com/arcanelvgaming/
 
-https://www.facebook.com/arcanelv/
+Instagram: https://www.facebook.com/arcanelv/
