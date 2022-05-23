@@ -9,3 +9,6 @@ FaceBook: https://www.instagram.com/arcanelvgaming/
 Instagram: https://www.facebook.com/arcanelv/
 
 īpašnieks: qju#0666
+
+
+Leakey BY: lilmonkeylv#1210
